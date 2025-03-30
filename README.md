@@ -1,7 +1,7 @@
 # Vicente Fernández
 
 ## Bio
-Born in a place full of danger but enveloped by love. They call me "El Vicho". Eater of food, conoceur of adventure, grower of hair.
+Born in a place full of danger but enveloped by love. They call me "El Vicho". Eater of food, player of games, grower of hair.
 
 
 ## Image
